@@ -1,2 +1,0 @@
-# hetu
-thank you
